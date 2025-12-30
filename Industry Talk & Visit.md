@@ -1,4 +1,4 @@
-Reflections 
+## Reflections 
 
 The visit to UTMDigital was very helpful and beneficial because it shows us how technology are applied in actual real life.
 It helped connect of what we learn in class with how it's applied in actual organization. this activity has an impact of the
